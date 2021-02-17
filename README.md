@@ -1,1 +1,2 @@
 # schoolstuff-public
+hi class
