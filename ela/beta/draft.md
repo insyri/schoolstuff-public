@@ -1,0 +1,25 @@
+# C16: Canada's Law on Compelled Speech
+
+
+*"The American jurisprudence clearly defines this as unconstitutional compelled speech. In Canada, the Supreme Court has enunciated the principle that anything that forces someone to express opinions that are not their own is a penalty that is totalitarian and, as such, alien to the tradition of free nations like Canada."
+— D. Jared Brown, Lead Counsel, D. Jared Brown Professional Corporation.*
+
+[Royally assented](https://sencanada.ca/en/about/procedural-references/notes/n6) on the 19th of June, 2017, the C16 enactment placed an asterisk on the word &quot;free&quot; in free speech. C16 restricts the right to offend others based on gender identity and limits language to express Canadian society&#39;s thoughts (about them). These statutes make the word free hypocritical, and not only does it not worsen the grounds, but it doesn&#39;t solve the root of the problem: linguistic and social regard. It coerces people to use a specific set of pronouns to address transgenders+ and non-conforms.
+
+In further analysis, C16 falls on both sides of the negatives, the first being curtailing speech. Receding speech diminishes the ideas people can have and express. Government constraint in speech is also corrupt; mandating what Canadian society _has_ to say is furthering bewilderment in verbal expression and indubitably causes puzzlement.
+
+In this position, the language may not be consistent with the opinions and beliefs of Canadian society. In the failure of adhering, Canada may sentence those up to 5 years of incarceration, [source](https://laws-lois.justice.gc.ca/eng/acts/C-46/page-197.html#s-743:~:text=743%20Every%20one%20who%20is%20convicted,s.%20161995%2C%20c.%2022%2C%20s.%206). It is unnecessary to be imprisoned _—_ especially for that sort of length _—_ just for your opinion and opinion only. For a hypothetically compassionate reason to regulate hate speech to defend provoking the other _—_ even if what others say are relevant and significant (will inevitably offend at least one person) _—_ makes you viable for imprisonment at the expense of notions and beliefs that come out of mouths. People need to express their genuine thoughts to articulate their language. There needs to be bias and wrong so others can communicate and understand each other to reach the agreed rationalized truth (assuming the oppositions are both in pursuit of correctness, understands that neither holds the correctness utterly, and defenses turn to be coherent).
+
+In the end, this enactment does not solve the root of the problem: respect. Legislating laws that force society into verbally respecting the marginalized _will not_ work. Offending is one of the aspects of language everyone uses accidentally and intentionally. Letting the government decide and define those states asserts that any contentious opinion against them is predominantly illegal. Not only curtailing language but _also_ demanding assured speech does _not_ solve respect and is _not_ righteous; instead, unprincipled.
+
+C16 is the first Canadian piece of legislation that requires people to use a particular set of words. Now, there is other legislation to govern to some degree what others can&#39;t say: for example, it is illegal to incite crime, and that&#39;s perfectly logical. The fact that C16 happens to correlate with transgender+ terminology and pronouns is beside the focus.
+
+## Clarification
+
+Offending for the physique is illegal, where hating for an idea is legal. Think of it like this: hating on Nazis will not get one criminal sanction because it is a cognitive categorization, meaning the _ideology_ of Nazi does not legitimately discriminate. However, hating for a legitimate attribute of a person _—_ e.g., their gender _—_ would make one eligible for criminal acquiescence _because_ it is something the (man in this case) opposition cannot change; this is their gender identity.
+
+According to the [OHRC](http://www.ohrc.on.ca/sites/default/files/Policy%20on%20preventing%20discrimination%20because%20of%20gender%20identity%20and%20gender%20expression.pdf), the Ontario Human Rights Commission, gender expression is &quot;how a person publicly expresses or presents their gender. This can include behaviour and outward appearance such as dress, hair, make-up, body language and voice&quot;. (pg 7, ch. 3: Gender identity and gender expression)
+
+## Conclusion
+
+C16 enactment controls the Canadian society&#39;s ideas and opinions through compelling speech, revokes the right to offend others through physical characteristics, and does not solve the issue C16 was enacted to fix: verbal respect.
