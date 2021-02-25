@@ -25,3 +25,5 @@ According to the [OHRC](http://www.ohrc.on.ca/sites/default/files/Policy%20on%20
 ## Conclusion
 
 C16 enactment controls the Canadian society's ideas and opinions through compelling speech, revokes the right to offend others through physical characteristics, and does not solve the issue C16 was formally appointed to fix: verbal respect. C16 is not just a bill that modifies speech but also an act that attempts to eliminate physical discrimination in society, such as job opportunities, distributing hate propaganda, denial of service for emergency rooms, provoking violent retaliation, and more. C16 does not necessitate a total withdrawal — alternatively, an alteration.
+
+There must be free speech to communicate with others; the rushed alternative is violence
